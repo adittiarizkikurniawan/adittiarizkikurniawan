@@ -1,1 +1,0 @@
-# adittiarizkikurniawan.github.io
